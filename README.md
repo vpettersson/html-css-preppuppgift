@@ -7,4 +7,5 @@ Inom sport är intresset i rangordning:
 2. Rögle BK
 3. Malmö FF
 
-Älskar öl & snus men även min fästmö och vår katt.
+Tycker om att dricka öl och klarar mig inte utan snus. (Bättre så än tvärtom)  
+Bor tillsammans med min fästmö och vår katt Mason (döpt efter en Chelseaspelare utan hennes vetskap.. nöjd med den.)
